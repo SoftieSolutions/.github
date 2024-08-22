@@ -1,5 +1,6 @@
-## Hi there 👋
+## Hola, somos Softie Solutions! ☁️
 
+Queremos ayudarte a potenciar tu marca y tus canales de marketing usando las mas novedosas herramientas y soluciones digitales
 <!--
 
 **Here are some ideas to get you started:**
